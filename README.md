@@ -1,3 +1,3 @@
-# 👩🏻‍💻 Larissa Kich
+# 👩🏻‍💻 João Paulista
 
 **`Desenvolvedora Back-end`**
